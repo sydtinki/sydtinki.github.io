@@ -1,1 +1,0 @@
-# sydtinki.github.io
